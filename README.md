@@ -1,4 +1,4 @@
-# Sandra & Gokul — Wedding Invitation
+# Fathima and Hafeel — Wedding Invitation
 
 A scroll-driven, cinematic wedding invitation in a sage green & cream palette,
 inspired by Kerala temple mural art and the bell-metal *nilavilakku* lamp —
